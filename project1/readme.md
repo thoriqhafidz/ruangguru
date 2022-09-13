@@ -1,0 +1,3 @@
+# Thoriqul
+
+aku suka dewi
